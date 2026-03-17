@@ -1,4 +1,12 @@
-## Hi there 👋
+![](https://files.catbox.moe/jxfqxx.jpeg)
+*art is not by me*
+
+
+hellooo, name is cassy (or gary)! im 15, 29th jan!!
+feel free to c*h or int me, i loooveeee yappin and meet new people!!
+
+
+dont copy + taking inspo from me, i do not give any permissions on them😂
 
 <!--
 **GUTSANDBLACKP0WDER/GUTSANDBLACKP0WDER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
