@@ -1,24 +1,14 @@
 ![](https://files.catbox.moe/jxfqxx.jpeg)
-*art is not by me*
+
+$${\color{#9ed7e6} art  \space  is  \space  not   \space  by  \space  me  }$$
+
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ${{\color{#9ed7e6}{\textsf{hellooo! name is barry/barrel whatever you pleased!}}}}$
 
 
-hellooo, name is cassy (or gary)! im 15, 29th jan!!
-feel free to c*h or int me, i loooveeee yappin and meet new people!!
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ${{\color{#9ed7e6}{\textsf{no inspo n copy}}}}$
+
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ${{\color{#9ed7e6}{\textsf{c+h and int freely idm}}}}$
 
 
-dont copy + taking inspo from me, i do not give any permissions on them😂
 
-<!--
-**GUTSANDBLACKP0WDER/GUTSANDBLACKP0WDER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ${{\color{#9ed7e6}{\textsf{strawpage soon.         rentry is so outdated ill get it somedayyyy..}}}}$
