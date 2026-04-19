@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=your-github-GUTSANDBLACKP0WDER&color=9ed7e6) 
+
 ![](https://file.garden/adi4Kkv5YCgViiqh/IMG_9153.jpeg)
 
 hi @exelreti HIIII😭
