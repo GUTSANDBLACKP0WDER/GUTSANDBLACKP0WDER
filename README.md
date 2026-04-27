@@ -12,7 +12,7 @@ art is made by me hi :3
   <summary><ins>${{\color{#9ed7e6}{\textsf{BASIC INFO}}}}$</ins></summary>
   
   <div align="center">
-    <p> ${{\color{#9ed7e6}{\textsf{hi! name is barry/barrel. my prons are any tbh, though im pretty prefer she/him}}}}$ </p>
+    <p> ${{\color{#9ed7e6}{\textsf{hi! name is uni/barrel. my prons are any tbh, though im pretty prefer he/them}}}}$ </p>
     <p> ${{\color{#9ed7e6}{\textsf{i got anxious a lottt, please bare with me im trying 🥹}}}}$ </p>
     <p> ${{\color{#9ed7e6}{\textsf{i rlly enjoyed c+h, please dont be shy to do with me!! i cant sit alone tbhh}}}}$ </p>
     <p> ${{\color{#9ed7e6}{\textsf{im a minor btw! -13 DNI and 20+ DNI. unless i alr know u:33}}}}$ </p> 
